@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @officalfelix
+- 👀 I’m interested in rule34 
+- 💞️ I’m looking to collaborate on nothing im an idiot lol
+- 📫 How to reach me ... no
